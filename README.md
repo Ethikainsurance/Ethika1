@@ -1,0 +1,2 @@
+# Ethika1
+Insurance broker Ethika is the most reliable in India. We don't just say this, but our 5-star rating on Google and Facebook along with client thank you emails when they requested close support proves it. Ethika offers employee benefits insurance including group medical insurance/ group health insurance, group term plans, business liability insurance, and office package insurance. We can help you protect your employees.
